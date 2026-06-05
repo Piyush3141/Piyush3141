@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Piyush3141
-- 👀 I’m interested in Coding and programming
+- 👀 I’m interested in Coding, programming and Gaming
 - 🌱 I’m currently an undergraduate student at AISSMS IOIT
 - 📫 How to reach me is on Dm me or linked In on Piyush Ankaikar
 - 😄 Pronouns: he/him
